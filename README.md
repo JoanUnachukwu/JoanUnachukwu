@@ -1,6 +1,6 @@
 # Hi there, Joan Unachukwu here 👋
-#### **I am a Data Analyst and Storyteller**
-Pleased to meet you
+#### **I am a Data Analyst/Storyteller and Sustainability Advocate**
+Pleased to meet you.
 
 #### **FunFact: I am also a Creative!**
 
