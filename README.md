@@ -4,7 +4,7 @@ Pleased to meet you.
 
 #### **FunFact: I am also a Creative!**
 
-Let's connect via LinkedIn https://www.linkedin.com/in/joan-unachukwu-0b7aa3103
+Let's connect via LinkedIn https://www.linkedin.com/in/joan-unachukwu
 <!--
 **JoanUnachukwu/JoanUnachukwu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
